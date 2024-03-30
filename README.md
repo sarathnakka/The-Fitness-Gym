@@ -1,5 +1,5 @@
 
-# Fitness Club
+# Fitness GYM
 
 🚀
 
